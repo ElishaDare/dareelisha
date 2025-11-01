@@ -28,5 +28,5 @@ Healthcare, Engineering AI, Technology, Energy/Oil & Gas, and Environment.
 ---
 
 ## 📫 Contact
-📧 **Email:** elishadare@example.com  
+📧 **Email:** dare131e@gmail.com  
 🔗 **LinkedIn:** [linkedin.com/in/elishadare](https://linkedin.com/in/elishadare)
